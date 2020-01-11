@@ -22,3 +22,4 @@ Study contents for the IELTS exam.
 - https://www.ielts-mentor.com/
 - https://www.roadtoielts.com/
 - https://ieltspracticeonline.com/
+- https://www.dictionary.com/
