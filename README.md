@@ -4,6 +4,8 @@ Study contents for the IELTS exam.
 
 ## Vocabulary
 
+https://www.ieltsspeaking.co.uk/ielts-vocabulary/
+
 ## Listening
 
 ## Reading
